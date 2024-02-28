@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @wackykm
+- 👀 I’m interested in holistic/natural health and finance
+- 🌱 I’m currently learning Data Science
+- 💞️ I’m looking to collaborate on cost and time ficiency
+- 📫 How to reach me kmartinphx@gmail.com
+- ⚡ Fun fact: I'm a silly goose in futbol
